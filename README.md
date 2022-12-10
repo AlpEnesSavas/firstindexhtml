@@ -1,0 +1,2 @@
+# firstindexhtml
+kodluyoruz eğitim odevi
